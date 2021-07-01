@@ -9,6 +9,3 @@ I'm Zara, Talent Partner from Adobe Armenia.
 ### Ask me about 
 - Career advise
 - Career coaching
-
-#### Hobbies
-Swimming, Shooting, Wushu 
