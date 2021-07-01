@@ -4,7 +4,7 @@ I'm Zara, Talent Partner from Adobe Armenia.
 
 ### Contacts
 - [LinkedIn](https://www.linkedin.com/in/zara-grigoryan-550865129/)
-- [Email](zarag@adobe.com)
+- Email: zarag@adobe.com
 
 #### Hobbies
 
