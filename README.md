@@ -7,7 +7,7 @@ I'm Zara, Talent Partner from Adobe Armenia.
 - Email: zarag@adobe.com
 
 #### Hobbies
-
+Swimming, Shooting, Wushu 
 <!--
 **ZaraRec/ZaraRec** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
